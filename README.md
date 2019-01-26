@@ -1,1 +1,1 @@
-2x10w-audio-amplifier-class-D-
+2x10w-audio-amplifier-class-D
